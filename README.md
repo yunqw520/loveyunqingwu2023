@@ -6,7 +6,6 @@
 ![3](https://user-images.githubusercontent.com/107339372/213840672-bacdea82-8def-4666-a0f0-42ac68b66ad8.jpg)
 ![4](https://user-images.githubusercontent.com/107339372/213840676-595a2b9a-a3a5-4419-bc6b-15775d259818.jpg)
 ![5](https://user-images.githubusercontent.com/107339372/213840677-5b72a3d3-6498-4399-ada6-60b118efdaab.jpg)
-![6](https://user-images.githubusercontent.com/107339372/213840678-6d7b98c9-32ec-4552-bf9b-5cab905068f1.jpg)
 
 
 福利姬 magnet:?xt=urn:btih:3b0db804f0ba8b8e5c3293087adfebb752adda2c
